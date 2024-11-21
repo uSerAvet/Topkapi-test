@@ -9,7 +9,7 @@ Konum: İstanbula hakim heryere yakın ve yapıldığı zamana göre bile tarihi
 Osmanlının fethettiği veya ticari bağlar kurduğu neredeyse heryerden silah çeşitleri bulunuyordu.
 (silah1.jpeg) 
 (silah2.jpeg)
-(silah3.jpeg)
+[silah3.jpeg]
 #### böyle bir yerde japon katanası beklemiyordum (bütün turistlerin yarısı japondu)
 (silah4.jpeg)
 ### Saat Odası:
